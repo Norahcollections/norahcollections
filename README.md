@@ -12,7 +12,7 @@ We currently ship worldwide and are proud to serve women across the US, UK, Euro
 
 **Follow us for more:**
 
-- Instagram: [@norahcollections](https://www.instagram.com/norah.collections)
+- Instagram: [@norahcollections](https://www.instagram.com/norah.col)
 - Pinterest: [Norah Collections](https://www.pinterest.com/norahcollections)
 - TikTok: [@norahcollections](https://www.tiktok.com/@norah.collections)
 
