@@ -1,16 +1,19 @@
-## Hi there 👋
+*Modest fashion, redefined.**
 
-<!--
-**Norahcollections/norahcollections** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Norah Collections is a modest fashion brand offering timeless abayas and elegant pieces for women who value both style and coverage.
 
-Here are some ideas to get you started:
+Our mission is to make modestwear feel empowering, effortless, and modern — without compromise. From classic cuts to flowy silhouettes, every item is designed with care and intention.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+We currently ship worldwide and are proud to serve women across the US, UK, Europe, and the Gulf.
+
+🛍️ Explore the collection: [https://norahcollections.com](https://norahcollections.com)
+
+---
+
+**Follow us for more:**
+
+- Instagram: [@norahcollections](https://www.instagram.com/norahcollections)
+- Pinterest: [Norah Collections](https://www.pinterest.com/norahcollections)
+- TikTok: [@norahcollections](https://www.tiktok.com/@norahcollections)
+
+Thank you for supporting independent, purpose-driven fashion 💫
